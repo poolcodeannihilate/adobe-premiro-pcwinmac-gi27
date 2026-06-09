@@ -1,4 +1,4 @@
-# 
+# Nativo Adobe Premiere Pro filtros para Mac OS | Avanzado Adobe Premiere Pro filtros para PC Windows. Con cambio de escenas y estiramiento de tiempo — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
